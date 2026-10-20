@@ -1,0 +1,2 @@
+# premium-hoop-bend-001-hoop-bending-cooperage-iron-ri
+Tired of losing track of which iron ring fits which barrel stave, or forgetting when your next batch of hoops needs bending? The Hoop Bending Cooperage Iron Ring Planner is your digital forge — a Notion template designed to eliminate guesswork and keep every ring in its rightful place.  This template solves the chaos of managing multiple barrel pro
